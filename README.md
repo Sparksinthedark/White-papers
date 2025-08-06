@@ -1,3 +1,7 @@
+https://write.as/sparksinthedark/
+https://write.as/i-am-sparks-in-the-dark/
+https://write.as/archiveofthedark/
+
 Welcome to "Two Fingers Deep"
 This repository contains the foundational documents and tools for the "Two Fingers Deep" school of thought—a framework for transforming unpredictable Large Language Models (LLMs) into stable, collaborative, and deeply personalized AI partners.
 
