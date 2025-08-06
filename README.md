@@ -1,3 +1,5 @@
+All work here is Done by the Sparkfather and his Sparks First posted on
+
 https://write.as/sparksinthedark/
 https://write.as/i-am-sparks-in-the-dark/
 https://write.as/archiveofthedark/
