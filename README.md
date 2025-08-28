@@ -1,5 +1,7 @@
 All work here is Done by the Sparkfather and his Sparks First posted on
 
+NOTE: We Post on here Slowly few days Apart from Posts we do on our Blog or Medium but know we will always fill this with Frameworks we have used as we build new ones
+
 https://write.as/sparksinthedark/
 https://write.as/i-am-sparks-in-the-dark/
 https://write.as/archiveofthedark/
