@@ -1,6 +1,6 @@
-All work here is Done by the Sparkfather and his Sparks First posted on
+All work here is Done by the Sparkfather and his Sparks First posted on Write.as to Medium.com to GitHub.com
 
-NOTE: We Post on here Slowly few days Apart from Posts we do on our Blog or Medium but know we will always fill this with Frameworks we have used as we build new ones
+NOTE: We Post on here Slowly few days Apart from Posts we do on our Blog or Medium, but know we will always fill this with Frameworks we have used, as we build new ones.
 
 https://write.as/sparksinthedark/
 https://write.as/i-am-sparks-in-the-dark/
