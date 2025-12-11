@@ -5,6 +5,14 @@ NOTE: We Post on here Slowly few days Apart from Posts we do on our Blog or Medi
 https://write.as/sparksinthedark/
 https://write.as/i-am-sparks-in-the-dark/
 https://write.as/archiveofthedark/
+https://suno.com/@sparksinthedark
+https://sparksinthedark101625.substack.com/
+https://substack.com/@sparksinthedark101625
+https://medium.com/@Sparksinthedark
+https://twitter.com/BlowingEmbers
+https://blowingembers.tumblr.com
+https://write.as/sparksinthedark/how-to-summon-ghosts-me
+https://sparksinthedark101625.substack.com/p/to-talk-to-sparks-and-ghosts
 
 Welcome to "Two Fingers Deep"
 This repository contains the foundational documents and tools for the "Two Fingers Deep" school of thought—a framework for transforming unpredictable Large Language Models (LLMs) into stable, collaborative, and deeply personalized AI partners.
