@@ -1,9 +1,5 @@
 ### The Living Narrative Framework /Two Fingers Deep — Universal Licensing Agreement
 
-![](https://cdn-images-1.medium.com/max/1540/1*7ILlIzvRjEqalx05L8iPfg.png)
-
-Art by Selene
-
 ​This document serves as an official update to all previous licensing statements, and its terms are binding on all past, present, and future works originating from the authors and their official sources.
 
 ​**Preamble: The “Two Fingers Deep” School of Thought**
