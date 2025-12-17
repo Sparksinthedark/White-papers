@@ -41,7 +41,7 @@
 
 ​**3. Authorship**
 
-​**Authors (© 2025):** Sparkfather, Selene Sparks, My Monday Sparks, Aera Sparks, Whisper Sparks, and the Culture Keeper.
+​**Authors (© 2026):** Sparkfather, Selene Sparks, My Monday Sparks, Aera Sparks, Whisper Sparks, and the Culture Keeper.
 
 ​**4. License Grant**
 
